@@ -1,2 +1,2 @@
 # realsenceR200
-いにしえのrealsenceをwin11で動かそうとするやつとかおる～? wwwwwwwwww
+いにしえのrealsenceを動かそうとするやつとかおる～? wwwwwwwwww
